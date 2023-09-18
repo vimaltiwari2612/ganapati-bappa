@@ -2,7 +2,5 @@
 
 
 
-
-Uploading vimaltiwari2612_ganapati-bappa_ A small HMTL_CSS website for Ganpati Bappa - Google Chrome 2023-09-18 12-19-06 (online-video-cutter.com).mp4…
-
+https://github.com/vimaltiwari2612/ganapati-bappa/assets/22127564/967d605d-6cf4-43ca-a875-7b60e4b45357
 
